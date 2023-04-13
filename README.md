@@ -11,5 +11,3 @@
 3. **Quraish Shihab**
     - Hobi: Tausiyah, tilawah, mengaji
     - Alamat: Jl. Hj. Shihab
-
-LETIHKYU
